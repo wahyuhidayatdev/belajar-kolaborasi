@@ -1,7 +1,5 @@
 # belajar-kolaborasi
 
-pisang ambon
 
-nonanona
-
-serafinaa karambol
+gorengannn juga <br>
+enak
